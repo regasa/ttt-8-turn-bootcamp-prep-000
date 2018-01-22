@@ -1,5 +1,5 @@
 #Learn.co Educational Content License
-
+bhwhfbbbnjBSJ BJKNS, subjectNJRBKTBBBSVS VSF VJ B  BS J JSJ BSJB SJB SJB SJB JBMBNBXJ BNJBS B  VBJK JBF V BB  JK VW B  ERM WMS SBHSWR HB B FWS W RFH S F W VM NMB DRG EMNF MDGMEN SJR TESZL.KEJMR MWN SKSJ,BR TNW ALKLKDCKW ERWJNOK LSRW N MNKSRJ
 Copyright (c) 2015 Flatiron School, Inc
 
 The Flatiron School, Inc. owns this Educational Content. However, the Flatiron School supports the development and availability of educational materials in the public domain. Therefore, the Flatiron School grants Users of the Flatiron Educational Content set forth in this repository certain rights to reuse, build upon and share such Educational Content subject to the terms of the Educational Content License set forth [here](http://learn.co/content-license) (http://learn.co/content-license). You must read carefully the terms and conditions contained in the Educational Content License as such terms govern access to and use of the Educational Content.  
